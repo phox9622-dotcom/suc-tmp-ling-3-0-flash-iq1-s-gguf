@@ -1,0 +1,1 @@
+# suc-tmp-ling-3-0-flash-iq1-s-gguf
